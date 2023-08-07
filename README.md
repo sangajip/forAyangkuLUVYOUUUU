@@ -1,0 +1,2 @@
+# forAyangkuLUVYOUUUU
+AKU SAYANG KAMU
